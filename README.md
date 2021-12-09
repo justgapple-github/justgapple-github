@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @justgapple-github
+- 👀 I’m interested in games...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on nobody
+- 📫 How to reach me idk
+
